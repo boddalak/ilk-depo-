@@ -1,0 +1,2 @@
+# ilk-depo-
+okul şeysi
